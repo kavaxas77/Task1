@@ -13,3 +13,12 @@ rogor wavaget makedoniastan
 arada shansebi gvqonda
 
 gamovardit
+
+
+Axali kinoebis saiti; domeini mymovies.ge
+
+gaertianebuli bevri platforma: Netflix; hulu; HBO; Disney+; Amazon Prime
+
+lamazi da advilad gasarchevi dizainit
+
+gaxmovaneba Geo; Eng ; Rus
